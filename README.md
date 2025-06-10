@@ -244,7 +244,7 @@ This project is licensed under the MIT License - see the LICENSE file for detail
 
 For support or inquiries, please contact:
 - Email: geraldndyamukama39@gmail.com
-- Website: https://www.tanzaniajobs.com/contact
+- Contact me on : 0754318464 
 
 ---
 
